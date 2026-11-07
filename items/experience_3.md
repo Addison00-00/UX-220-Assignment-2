@@ -7,3 +7,5 @@ During the summer of 2025, I retook BU127: Introduction to Financial Accounting 
 I am proud of improving my BU127 grade from a " D " to a " C, and an “F” to a “B” in MA129. Although I do not have a favourite memory, a pass is a pass. 
 
 I regret repeating those courses, as I could have gone travelling abroad with my mother to China, Hong Kong, and Malaysia. Nevertheless, I benefit in the long term from repeating the courses, as I improved my overall GPA, and focusing on my education and graduating is my current priority.
+
+![媽媽 In China Without Me. T^T](Mama_(China).png)
