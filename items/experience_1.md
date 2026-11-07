@@ -1,4 +1,6 @@
-##### Experience 1: Paper Airplane Making Instruction Guide (PAMIGA) | Friday, October 2nd - Friday, October 23rd
+##### Experience 1: Paper Airplane Making Instruction Guide (PAMIGA) ! ⌯⌲
+Friday, October 2nd - Friday, October 23rd
+
 
 I was tasked with designing steps to build a viable paper airplane, drawing inspiration from the class activity on paper airplane making, where we watched <i>John Collins'</i> demonstration to fold a “world-record-setting” paper airplane.
 
