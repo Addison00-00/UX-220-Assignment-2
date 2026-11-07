@@ -1,4 +1,4 @@
-##### Experience 1: Paper Airplane Making Instruction Guide (PAMIGA) ! ⌯⌲
+##### Experience 1: Paper Airplane Making Instruction Guide (PAMIGA) ⌯⌲
 Friday, October 2nd - Friday, October 23rd
 
 
