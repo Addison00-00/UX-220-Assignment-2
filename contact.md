@@ -1,1 +1,2 @@
-Contact information here
+##### Contact Me
+hoxx0241@mylaurier.ca
