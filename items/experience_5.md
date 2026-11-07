@@ -1,5 +1,5 @@
 ##### Experience 5: Living Life (Life's Good). 😎🤙
-Saturday, April 8th, 2006 - PRESENT
+April 8th, 2006 - PRESENT | Level: TBD
 
 I am alive; I was born in April 2006 in Hunan, China; I am currently living life.
 

@@ -1,5 +1,5 @@
 ##### Experience 2: Theatre Club!🎭
-September 2025 - March 2026
+September 2025 - March 2026 | Level: B (😊)
 
 
 I joined Wilfrid Laurier Brantford’s Theatre Club in my first year of User Experience Design; my second year of overall university; and got to play as a “Gossip,” “a chorus of high-society creatures”—as I would like to think of them as narrative fairies—in Kate Hamil’s play adaptation of Jane Austen’s Sense and Sensibility, which we performed at the end of March last school year.

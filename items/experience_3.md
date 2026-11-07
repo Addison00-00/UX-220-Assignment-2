@@ -1,5 +1,5 @@
 ##### Experience 3: A Studious Summer!☝️🤓
-May 2025 - August 2025
+May 2025 - August 2025 | Level: DF (😭)
 
 
 During the summer of 2025, I retook BU127: Introduction to Financial Accounting and MA129: Introductory Calculus for Business and Statistics—asynchronously and online—to improve my grades, GPA, and overall average, and out of a desperate desire to stay eligible in the Business Technology Management Program (BTM). 
